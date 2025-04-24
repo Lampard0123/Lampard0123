@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+你好
+中山經濟系碩一
+我叫邱堃瑜
+今年24歲
+我今天很開心
